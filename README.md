@@ -1,6 +1,6 @@
 # Delta Happiness
 If you know, you know
 
-hello
+hello, world
 
 ![Swiss mountain hut](images/hasliberg_hut.jpg)

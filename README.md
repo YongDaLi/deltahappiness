@@ -7,7 +7,7 @@ If you know, you know
 |---|---|---|
 | Go iceskating after classes until 22.30  | 16  | https://www.doldersports.com/winter-front-page/kunsteisbahn/ |
 | Hot pot in Germany | big money |  |
-| Karaoke at Yong Da's while his roommate is in Nicaragua and during the day so as not to disturb old granny - 0 CHF | 0  |  |
+| Karaoke at Yong Da's while his roommate is in Nicaragua and during the day so as not to disturb old granny | 0  |  |
 | Trampoline park in Rumlang  | medium money | https://www.fliplab.ch/zurich/ |
 | Day trip to Ticino (have you been to Verzascatal for example) then do Karaoke at Emma's house cause no old grannies will be disturbed, only 19 year old brothers which is totally fine. | 20 for those poor folks without a GA |  |
 | Go look at Rhine falls and Schaffhausen |  |  |
@@ -25,6 +25,7 @@ If you know, you know
 
 ### Completed
 | **Plan** | **Date** | **Attendees** | 
+|---|---|---|
 | Weekend in Hasliberg | 20 - 22 October 2023 | Yong Da, Emma x2, Arthur, Atien, Jose, Kevin, Yimeng |
  
 

@@ -7,9 +7,8 @@ If you know, you know
 |---|---|---|
 | Go ice skating after classes until 22.30  | 16  | https://www.doldersports.com/winter-front-page/kunsteisbahn/ |
 | Hot pot in Germany | big money |  |
-| Karaoke at Yong Da's while his roommate is in Nicaragua and during the day so as not to disturb old granny | 0  |  |
 | Trampoline park in Rümlang  | medium money | https://www.fliplab.ch/zurich/ |
-| Day trip to Ticino (have you been to Verzascatal for example) then do Karaoke at Emma's house cause no old grannies will be disturbed, only 19 year old brothers which is totally fine. | 20 for those poor folks without a GA |  |
+| Day trip to Ticino (have you been to Verzascatal for example) then do Karaoke at Emma's house cause no old grannies will be disturbed, only 19 year old brothers which is totally fine. | 20 for those poor folks without a GA |  Zug Zug Zug Zug Zug Zug Zug Zug|
 | Go look at Rhine falls and Schaffhausen |  |  |
 | Barefoot hike in Appenzell <br> <i>Yong Da: what in the Alabama is this?<i/>| 20  | https://zurich.esn.ch/event/2810 |
 | Potluck picnic |  |  |
@@ -17,11 +16,14 @@ If you know, you know
 | Ride around Greifensee | 0  | https://zurich.esn.ch/event/2764 |
 | Hike up Uetliberg at night | 0  | https://zurich.esn.ch/event/2735 |
 | Play the dice decides which train to take next  | 20  |  |
+| Go to some Swiss city with no phone usage and explore | 20 | |
+| Hide and seek at Honggerberg  | 0 | |
 
 ### Planned
 | **Plan** | **Date** | **Attendees** | 
 |---|---|---|
 | bruh we ain't got no plan | | 
+| Karaoke at Yong Da's while his roommate is in Nicaragua and during the day so as not to disturb old granny | Wed, Nov 1, 2023  | Dylan, Eric, Sami, Emma S., Recep, Arthur, Atien, Sean|
 
 ### Completed
 | **Plan** | **Date** | **Attendees** | 

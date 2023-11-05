@@ -9,7 +9,6 @@ If you know, you know
 | Hot pot in Germany | big money |  |
 | Trampoline park in Rümlang  | medium money | https://www.fliplab.ch/zurich/ |
 | Day trip to Ticino (have you been to Verzascatal for example) but also this should only be done once they fix the stupid tunnel | 20 for those poor folks without a GA |  Zug Zug Zug Zug Zug Zug Zug Zug|
-| Go look at Rhine falls and Schaffhausen |  |  |
 | Barefoot hike in Appenzell <br> <i>Yong Da: what in the Alabama is this?<i/>| 20  | https://zurich.esn.ch/event/2810 |
 | Potluck picnic |  |  |
 | Someone buy a spikeball kit and play at a lake or river  |  |  |
@@ -20,7 +19,7 @@ If you know, you know
 | Hide and seek at Honggerberg  | 0 | |
 | Go see Rheinfall lit up at night  | 0 for those with night GA | https://rheinfall.ch/de/erleben/erleben/attraktionen/rheinfall-beleuchtung.html|
 | Fold origami in the forest at night (bring candles for light or make a fire whatever you prefer)| 0 |  |
-| Everyone brings an ingredient that starts with the same letter as their first or last name and then cook whatever ChatGDT comes up with |  |  |
+| Everyone brings an ingredient that starts with the same letter as their first or last name and then cook whatever ChatGDT comes up with | 0 |  |
 
 ### Planned
 | **Plan** | **Date** | **Attendees** | 
@@ -40,6 +39,14 @@ If you know, you know
 > Yong Da: Viagra should be kind of like coffee.
 
 > Jose: [**in a sad voice**] it's just one more app
+
+# Questions to discuss
+
+You people gotta add stuff here I already added the great excursion ideas. 
+
+But also if someone you loved was killed in front of you, but someone created a copy of them that was perfect right down to the atomic level, would they be the same person and would you love them just as much? 
+Oh, and also what would you genetically change about humans to make them a better species?
+
 
 # Archive
 

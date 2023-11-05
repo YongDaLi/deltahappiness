@@ -8,7 +8,7 @@ If you know, you know
 | Go ice skating after classes until 22.30  | 16  | https://www.doldersports.com/winter-front-page/kunsteisbahn/ |
 | Hot pot in Germany | big money |  |
 | Trampoline park in Rümlang  | medium money | https://www.fliplab.ch/zurich/ |
-| Day trip to Ticino (have you been to Verzascatal for example) then do Karaoke at Emma's house cause no old grannies will be disturbed, only 19 year old brothers which is totally fine. | 20 for those poor folks without a GA |  Zug Zug Zug Zug Zug Zug Zug Zug|
+| Day trip to Ticino (have you been to Verzascatal for example) but also this should only be done once they fix the stupid tunnel | 20 for those poor folks without a GA |  Zug Zug Zug Zug Zug Zug Zug Zug|
 | Go look at Rhine falls and Schaffhausen |  |  |
 | Barefoot hike in Appenzell <br> <i>Yong Da: what in the Alabama is this?<i/>| 20  | https://zurich.esn.ch/event/2810 |
 | Potluck picnic |  |  |
@@ -18,17 +18,20 @@ If you know, you know
 | Play the dice decides which train to take next  | 20  |  |
 | Go to some Swiss city with no phone usage and explore | 20 | |
 | Hide and seek at Honggerberg  | 0 | |
+| Go see Rheinfall lit up at night  | 0 for those with night GA | https://rheinfall.ch/de/erleben/erleben/attraktionen/rheinfall-beleuchtung.html|
+| Fold origami in the forest at night (bring candles for light or make a fire whatever you prefer)| 0 |  |
+| Everyone brings an ingredient that starts with the same letter as their first or last name and then cook whatever ChatGDT comes up with |  |  |
 
 ### Planned
 | **Plan** | **Date** | **Attendees** | 
 |---|---|---|
 | bruh we ain't got no plan | | 
-| Karaoke at Yong Da's while his roommate is in Nicaragua and during the day so as not to disturb old granny | Wed, Nov 1, 2023  | Dylan, Eric, Sami, Emma S., Recep, Arthur, Atien, Sean|
 
 ### Completed
 | **Plan** | **Date** | **Attendees** | 
 |---|---|---|
 | Weekend in Hasliberg | 20 - 22 October 2023 | Yong Da, Emma x2, Arthur, Atien, Jose, Kevin, Yimeng |
+| Karaoke at Yong Da's while his roommate is in Nicaragua and during the day so as not to disturb old granny | Wed, Nov 1, 2023  | Dylan, Eric, Sami, Emma S., Recep, Arthur, Atien, Sean|
  
 
 # Quotes

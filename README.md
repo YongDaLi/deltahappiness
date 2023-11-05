@@ -11,7 +11,7 @@ If you know, you know
 | Day trip to Ticino (have you been to Verzascatal for example) but also this should only be done once they fix the stupid tunnel | 20 for those poor folks without a GA |  Zug Zug Zug Zug Zug Zug Zug Zug|
 | Barefoot hike in Appenzell <br> <i>Yong Da: what in the Alabama is this?<i/>| 20  | https://zurich.esn.ch/event/2810 |
 | Potluck picnic |  |  |
-| Someone buy a spikeball kit and play at a lake or river  |  |  |
+| Someone buy a spikeball kit and play at a lake or river  | cheap: 31.80, medium: 56.60, expensive: 91.90 | https://www.galaxus.ch/de/s5/product/mint-lama-spikeball-strandspiele-13954297, https://www.galaxus.ch/de/s5/product/spikeball-spikeball-set-strandspiele-13842467, https://www.galaxus.ch/de/s5/product/spikeball-pro-set-strandspiele-14911541  |
 | Ride around Greifensee | 0  | https://zurich.esn.ch/event/2764 |
 | Hike up Uetliberg at night | 0  | https://zurich.esn.ch/event/2735 |
 | Play the dice decides which train to take next  | 20  |  |

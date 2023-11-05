@@ -19,7 +19,7 @@ If you know, you know
 | Hide and seek at Honggerberg  | 0 | |
 | Go see Rheinfall lit up at night  | 0 for those with night GA | https://rheinfall.ch/de/erleben/erleben/attraktionen/rheinfall-beleuchtung.html|
 | Fold origami in the forest at night (bring candles for light or make a fire whatever you prefer)| 0 |  |
-| Everyone brings an ingredient that starts with the same letter as their first or last name and then cook whatever ChatGDT comes up with | 0 |  |
+| Everyone brings an ingredient that starts with the same letter as their first or last name and then cook whatever ChatGPT comes up with | 0 |  |
 
 ### Planned
 | **Plan** | **Date** | **Attendees** | 

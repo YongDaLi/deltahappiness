@@ -40,6 +40,8 @@ If you know, you know
 
 > Jose: [**in a sad voice**] it's just one more app
 
+> Emma S.: Do you want to play "Who is Afraid of the Black Man"?
+
 # Very important questions to discuss
 
 You people gotta add stuff here I already added the great excursion ideas. 

@@ -49,6 +49,7 @@ You people gotta add stuff here I already added the great excursion ideas.
 But also if someone you loved was killed in front of you, but someone created a copy of them that was perfect right down to the atomic level, would they be the same person and would you love them just as much? 
 Oh, and also what would you genetically change about humans to make them a better species?
 
+How transactional are human relationships? And how transactional should they be?
 
 # Archive
 

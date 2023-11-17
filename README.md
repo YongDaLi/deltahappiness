@@ -38,9 +38,11 @@ If you know, you know
 
 > Yong Da: Viagra should be kind of like coffee.
 
-> Jose: [**in a sad voice**] it's just one more app
+> Jose: [*in a sad voice*] it's just one more app
 
 > Emma S.: Do you want to play "Who is Afraid of the Black Man"?
+
+> Emma S.: [*on the topic of grocery stores closing early*] Yeah see Zurich is actually really great, cause other cantons have much stricter opening hour laws. In a lot of cantons all stores close at 7PM. There was a referendum In Zug to have longer opening hours two years ago but 65% of people said no.
 
 # Very important questions to discuss
 
@@ -50,6 +52,8 @@ But also if someone you loved was killed in front of you, but someone created a 
 Oh, and also what would you genetically change about humans to make them a better species?
 
 How transactional are human relationships? And how transactional should they be?
+
+Selling out to the US military industrial complex?
 
 # Archive
 

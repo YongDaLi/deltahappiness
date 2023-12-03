@@ -35,6 +35,7 @@ We exude bb top energy.
 | Karaoke at Yong Da's while his roommate is in Nicaragua and during the day so as not to disturb old granny | Wed, Nov 1, 2023  | Dylan, Eric, Sami, Emma S., Recep, Arthur, Atien, Sean|
 | Go ice skating after classes until 22.30, 16CHF, https://www.doldersports.com/winter-front-page/kunsteisbahn/ | Wed, Nov 8, 2023 | Yong Da, Alex, Arthur, Atien, Dylan, Emma S., Kevin
 | Everyone brings an ingredient that starts with the same letter as their first or last name and then cook whatever ChatGPT comes up with | Fri, Nov 25, 2023 | Yong Da, Alex, Arthur, Atien, Emma S., Jose, Kevin, Yimeng : **we managed to burn soup**
+| Christmas market and night hike at Einsiedeln | Sat, Dec 2, 2023 | Yong Da, Arthur, Atien, Emma, Jose, Kevin, Recep|
 
  
 

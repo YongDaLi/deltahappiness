@@ -26,7 +26,7 @@ We exude bb top energy.
 | **Plan** | **Date** | **Attendees** | 
 |---|---|---|
 | bruh we ain't got no plan | | 
-| Christmas market at Einsiedeln and go night hiking and stuff | Sat, Dec 2, 2023 | ?? |
+| try to have deep conversations after eating super spicy food | Mon, Dec 11, 2023 | Not Arthur | 
 
 ### Completed
 | **Plan** | **Date** | **Attendees** | 

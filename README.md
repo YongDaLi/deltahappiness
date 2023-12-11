@@ -61,6 +61,35 @@ How transactional are human relationships? And how transactional should they be?
 
 Selling out to the US military industrial complex?
 
+Best names for their profession/job? Ex. if Stephen Curry worked at an Indian restaurant.
+
+What would a potential future culture and political system look like on a Mars colony?
+
+Perfect number of people for a:
+- camping trip
+- ski trip
+- orgy
+- dinner party
+
+Weirdest thing someone can pull out of their pocket?
+
+Absolute power corrupts absolutely?
+
+Is history decided by "great men" (aka individual people) or the masses?
+
+How much should drugs/medicine, technology, and statistics be allowed in sports? 
+- example drugs/medicine: Tour de France doping
+- example technology: Nike AlphaFly shoe or full-body swims suits
+- example statistics: A basketball team only runs 5x plays because they are the most efficient/highest scoring plays, leading to boring spectatorship, leading to less money into the league.
+
+How much social media should celebrities engage in?
+
+Lossless data compression is the same problem as general artificial intelligence. Discuss.
+
+Regardless of culture, socio-economic status, and period in history, what are constants in the human condition?
+
+If you could see the future and know that you'll have a child who dies at age 10, would you still have the child?
+
 # Archive
 
 We need memes here. Like actual memes of us. \

@@ -52,26 +52,8 @@ We exude bb top energy.
 
 # Very important questions to discuss
 
-You people gotta add stuff here I already added the great excursion ideas. 
-
-But also if someone you loved was killed in front of you, but someone created a copy of them that was perfect right down to the atomic level, would they be the same person and would you love them just as much? 
-Oh, and also what would you genetically change about humans to make them a better species?
-
-How transactional are human relationships? And how transactional should they be?
-
-Selling out to the US military industrial complex?
-
-Best names for their profession/job? Ex. if Stephen Curry worked at an Indian restaurant.
-
+## serious
 What would a potential future culture and political system look like on a Mars colony?
-
-Perfect number of people for a:
-- camping trip
-- ski trip
-- orgy
-- dinner party
-
-Weirdest thing someone can pull out of their pocket?
 
 Absolute power corrupts absolutely?
 
@@ -82,13 +64,38 @@ How much should drugs/medicine, technology, and statistics be allowed in sports?
 - example technology: Nike AlphaFly shoe or full-body swims suits
 - example statistics: A basketball team only runs 5x plays because they are the most efficient/highest scoring plays, leading to boring spectatorship, leading to less money into the league.
 
-How much social media should celebrities engage in?
-
 Lossless data compression is the same problem as general artificial intelligence. Discuss.
 
 Regardless of culture, socio-economic status, and period in history, what are constants in the human condition?
 
 If you could see the future and know that you'll have a child who dies at age 10, would you still have the child?
+
+
+## fun
+Best names for their profession/job? Ex. if Stephen Curry worked at an Indian restaurant.
+
+Perfect number of people for a:
+- camping trip
+- ski trip
+- orgy
+- dinner party
+
+Weirdest thing someone can pull out of their pocket?
+
+How long do you wait after an OS release before you update your device? 
+
+How much social media should celebrities engage in?
+
+## already done
+You people gotta add stuff here I already added the great excursion ideas. 
+
+But also if someone you loved was killed in front of you, but someone created a copy of them that was perfect right down to the atomic level, would they be the same person and would you love them just as much? 
+Oh, and also what would you genetically change about humans to make them a better species?
+
+How transactional are human relationships? And how transactional should they be?
+
+Selling out to the US military industrial complex?
+
 
 # Archive
 

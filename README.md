@@ -36,7 +36,7 @@ We exude bb top energy.
 | Go ice skating after classes until 22.30, 16CHF, https://www.doldersports.com/winter-front-page/kunsteisbahn/ | Wed, Nov 8, 2023 | Yong Da, Alex, Arthur, Atien, Dylan, Emma S., Kevin
 | Everyone brings an ingredient that starts with the same letter as their first or last name and then cook whatever ChatGPT comes up with | Fri, Nov 25, 2023 | Yong Da, Alex, Arthur, Atien, Emma S., Jose, Kevin, Yimeng : **we managed to burn soup**
 | Christmas market and night hike at Einsiedeln | Sat, Dec 2, 2023 | Yong Da, Arthur, Atien, Emma, Jose, Kevin, Recep|
-
+| winter hike around Grindelwald | Sat, Dec 9, 2023 | Yong Da, Emma, Jose, Kevin |
  
 
 # Quotes
@@ -50,9 +50,13 @@ We exude bb top energy.
 
 > Emma S.: [*on the topic of grocery stores closing early*] Yeah see Zurich is actually really great, cause other cantons have much stricter opening hour laws. In a lot of cantons all stores close at 7PM. There was a referendum In Zug to have longer opening hours two years ago but 65% of people said no.
 
+> Arthur: I want to invite you all for a dinner party at my place where I make Borscht. But there are two problems. I don't have enough space for everyone and I don't know how to make Borscht.
+
 # Very important questions to discuss
 
 ## serious
+Do you think technology in the future will lead to effectively limitless resources (no scarcity of resources) or we will enter a technological winter going back to very basic progress?
+
 What would a potential future culture and political system look like on a Mars colony?
 
 Absolute power corrupts absolutely?

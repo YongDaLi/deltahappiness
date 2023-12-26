@@ -76,6 +76,8 @@ If you could see the future and know that you'll have a child who dies at age 10
 
 
 ## fun
+First to die in a horror movie?
+
 Best names for their profession/job? Ex. if Stephen Curry worked at an Indian restaurant.
 
 Perfect number of people for a:

@@ -53,6 +53,23 @@ We exude bb top energy.
 > Arthur: I want to invite you all for a dinner party at my place where I make Borscht. But there are two problems. I don't have enough space for everyone and I don't know how to make Borscht.
 
 # Very important questions to discuss
+## Jan 2024
+What is the evolutionary function of the female orgasm?
+- https://en.wikipedia.org/wiki/Orgasm#Theoretical_biological_and_evolutionary_functions_of_female_orgasm
+
+Morgan Freeman and David Attenborough may already be dead and they're using AI to make money off of their famous voices
+
+Is it acceptable to play Titanic film music on a cruise ship?
+
+What's the most ingenious way to measure love? Can it be measured?
+
+Is globalization a real desire fo the future? I.e. should country borders be abolisedh? Should there be a specific limit for country differentiation?
+
+If you had to live the life of one historical (known) person, which one would it be? What is the largest animal you could defeat in a fistfight?
+
+Can sexual desire be deparated from emotions? (e.g. when watching pron or having a one-night stand). If yes, does this have consequences for your emotional competence.
+
+Reverse question: Can real love (between adults) be felt without feeling any sexual desire.
 
 ## serious
 Do you think technology in the future will lead to effectively limitless resources (no scarcity of resources) or we will enter a technological winter going back to very basic progress?
@@ -76,9 +93,6 @@ If you could see the future and know that you'll have a child who dies at age 10
 
 
 ## fun
-What is the evolutionary function of the female orgasm?
-- https://en.wikipedia.org/wiki/Orgasm#Theoretical_biological_and_evolutionary_functions_of_female_orgasm
-
 First to die in a horror movie?
 
 Best names for their profession/job? Ex. if Stephen Curry worked at an Indian restaurant.

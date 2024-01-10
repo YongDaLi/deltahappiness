@@ -52,6 +52,8 @@ We exude bb top energy.
 
 > Arthur: I want to invite you all for a dinner party at my place where I make Borscht. But there are two problems. I don't have enough space for everyone and I don't know how to make Borscht.
 
+> Arthur [on the topic of whether you would wear the same underwear for 1 week or the same socks for 30 days]: Bro how could you choose socks. You sweat in them everyday. Just clean yourself really nicely for one week, live hygenic, don't subject yourself to sin and you will be finde. Dude imagine the sturdiness and the smell of the socks after 3 weeks 💀
+
 # Very important questions to discuss
 ## Jan 2024
 What is the evolutionary function of the female orgasm?

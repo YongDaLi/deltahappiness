@@ -99,6 +99,8 @@ Does jealousy have value in driving humans to improve themselves or is it purely
 
 Would the world be a better or worse place if everyone looked the same?
 
+What factors drive the average age when people first have sex? Why is it so high in Singapore/Malaysia/India? http://chartsbin.com/view/xxj
+
 ## fun
 First to die in a horror movie?
 
@@ -175,6 +177,9 @@ Would you rather be surrounded by other people 75% of the time or alone 75% of t
 Would you rather people laughed or cried at your funeral?
 
 Would you rather be single for 10 years or have three relationships in 10 years that, going into them, you knew would all end?
+
+Would you rather live in a country with 75% non-foreigners or a country with only 1% foreigners?
+
 
 
 ## already done

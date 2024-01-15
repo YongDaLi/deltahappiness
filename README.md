@@ -52,7 +52,7 @@ We exude bb top energy.
 
 > Arthur: I want to invite you all for a dinner party at my place where I make Borscht. But there are two problems. I don't have enough space for everyone and I don't know how to make Borscht.
 
-> Arthur [on the topic of whether you would wear the same underwear for 1 week or the same socks for 30 days]: Bro how could you choose socks. You sweat in them everyday. Just clean yourself really nicely for one week, live hygenic, don't subject yourself to sin and you will be finde. Dude imagine the sturdiness and the smell of the socks after 3 weeks 💀
+> Arthur [on the topic of whether you would wear the same underwear for 1 week or the same socks for 30 days]: Bro how could you choose socks. You sweat in them everyday. Just clean yourself really nicely for one week, live hygenic, don't subject yourself to sin and you will be fine. Dude imagine the sturdiness and the smell of the socks after 3 weeks 💀
 
 # Very important questions to discuss
 ## Jan 2024
@@ -65,13 +65,13 @@ Is it acceptable to play Titanic film music on a cruise ship?
 
 What's the most ingenious way to measure love? Can it be measured?
 
-Is globalization a real desire fo the future? I.e. should country borders be abolisedh? Should there be a specific limit for country differentiation?
+Is globalization a real desire for the future? I.e. should country borders be abolished? Should there be a specific limit for country differentiation?
 
 If you had to live the life of one historical (known) person, which one would it be? What is the largest animal you could defeat in a fistfight?
 
-Can sexual desire be deparated from emotions? (e.g. when watching pron or having a one-night stand). If yes, does this have consequences for your emotional competence.
+Can sexual desire be separated from emotions? (e.g. when watching pron or having a one-night stand). If yes, does this have consequences for your emotional competence?
 
-Reverse question: Can real love (between adults) be felt without feeling any sexual desire.
+Reverse question: Can real love (between adults) be felt without feeling any sexual desire?
 
 ## serious
 Do you think technology in the future will lead to effectively limitless resources (no scarcity of resources) or we will enter a technological winter going back to very basic progress?
@@ -84,7 +84,7 @@ Is history decided by "great men" (aka individual people) or the masses?
 
 How much should drugs/medicine, technology, and statistics be allowed in sports? 
 - example drugs/medicine: Tour de France doping
-- example technology: Nike AlphaFly shoe or full-body swims suits
+- example technology: Nike AlphaFly shoe or full-body swimsuits
 - example statistics: A basketball team only runs 5x plays because they are the most efficient/highest scoring plays, leading to boring spectatorship, leading to less money into the league.
 
 Lossless data compression is the same problem as general artificial intelligence. Discuss.
@@ -93,6 +93,11 @@ Regardless of culture, socio-economic status, and period in history, what are co
 
 If you could see the future and know that you'll have a child who dies at age 10, would you still have the child?
 
+If you could teach everyone in the world one concept, what concept would have the biggest positive impact on humanity?
+
+Does jealousy have value in driving humans to improve themselves or is it purely a negative emotion? 
+
+Would the world be a better or worse place if everyone looked the same?
 
 ## fun
 First to die in a horror movie?
@@ -111,9 +116,68 @@ How long do you wait after an OS release before you update your device?
 
 How much social media should celebrities engage in?
 
-## already done
-You people gotta add stuff here I already added the great excursion ideas. 
+## Would you rather
 
+Would you rather never hug your best friend again or never text them ever again? What about the same question with your romantic partner?
+
+Would you rather never have to commute to work again or have a 3 day weekend?
+
+Would you rather have to start a new job every year until you retire, or have only 1 job for your entire career?
+
+Would you rather give the best gifts or the best advice?
+
+Would you rather be covered head to toe in tattoos or have one big face tattoo?
+
+Would you rather clog the toilet on your first day of work or on a first date?
+
+Would you rather accidentally call your partner by your ex’s name, or have them do that to you?
+
+Would you rather marry the hottest or smartest person alive?
+
+Would you rather your partner forget your anniversary every year, or you forget your partner’s birthday every year?
+
+Would you rather find lasting true love early on but work in a job you hate for the rest of your life, or have a job you love for the rest of your life but never find true love?
+
+Would you rather never have an orgasm or never find true love?
+
+Would you rather have ears that record everything you hear or eyes that record everything you see?
+
+Would you rather never age, or never need to sleep to function?
+
+Would you rather achieve a picture-perfect domestic life by 30 but not love your partner, or stay single before meeting the love of your life at 50?
+
+Would you rather know who you’ll marry or when you’ll die?
+
+Would you rather have an unlimited budget for travel but not be able to eat the local food or have an unlimited budget for food but only in the place you live?
+
+Would you rather win £25,000 or your best friend win £250,000?
+
+Would you rather look at your mum's search history or your dad's?
+
+Would you rather live in a world where there is no crime or no privacy?
+
+Would you rather have a one-minute conversation with your past self or your future self?
+
+Would you rather be more attractive or more intelligent?
+
+Would you rather be given a million dollars tomorrow or 10 million dollars 10 years from now?
+
+Would you rather watch the sunset or the sunrise?
+
+Would you rather elope or have 300 people at your wedding?
+
+Would you rather be able to predict the future or forget anything you wanted from your past?
+
+Would you rather fall in love multiple times or be able to love only one person?
+
+Would you rather be surrounded by other people 75% of the time or alone 75% of the time?
+
+Would you rather people laughed or cried at your funeral?
+
+Would you rather be single for 10 years or have three relationships in 10 years that, going into them, you knew would all end?
+
+
+## already done
 But also if someone you loved was killed in front of you, but someone created a copy of them that was perfect right down to the atomic level, would they be the same person and would you love them just as much? 
 Oh, and also what would you genetically change about humans to make them a better species?
 

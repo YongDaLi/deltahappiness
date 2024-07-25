@@ -8,6 +8,7 @@ We exude bb top energy.
 ### Ideas
 | **Idea** | **Cost [CHF]** | **Link** |
 |---|---|---|
+| go to a library at ETH and find a reference to your hometown/undergraduate university. Ex. we could go to the physics library and I would need to find a reference to University of Toronto. Not sure how we can balance it, since some people’s hometowns/undergrads are obviously more prominent. | free | architecture or physics library is usually pretty quiet at Hongg |
 | Hot pot in Germany | big money |  |
 | Trampoline park in Rümlang  | medium money | https://www.fliplab.ch/zurich/ |
 | Day trip to Ticino (have you been to Verzascatal for example) but also this should only be done once they fix the stupid tunnel | 20 for those poor folks without a GA |  Zug Zug Zug Zug Zug Zug Zug Zug|
